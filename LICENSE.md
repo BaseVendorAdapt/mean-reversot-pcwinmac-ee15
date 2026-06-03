@@ -1,4 +1,4 @@
-# 
+# Advanced mean reversion trading bot extensions for Mac OS | Professional mean reversion trading bot extensions for PC Windows. Featuring data visualization and multi-dex aggregation — optimized for maximum performance on every platform.
 
 
 
